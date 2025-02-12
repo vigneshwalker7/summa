@@ -5,4 +5,4 @@ enadhu bihy
 have a great day!
 
 
-num uriyaa
+great day!
